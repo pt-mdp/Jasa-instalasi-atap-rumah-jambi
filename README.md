@@ -16,19 +16,20 @@
 ## 🛠️ Bidang Pekerjaan Kami
 - 🏠 Bangun rumah dari nol  
 - 🔨 Rehab rumah  
-- 🏢 Bangun ruko dan renovasi ruko  
+- 🏢 Bangun ruko dan renovasi ruko  kost kos tan
 - 🎨 Pengecatan  
-- 🪜 Pemasangan plafon gypsum atau PVC  
+- 🪜 Pemasangan plafon gypsum atau PVC  partisi
 - 🏗️ Pemasangan rangka atap baja ringan (kanopi / atap rumah)  
 - 🏚️ Bongkar pasang atap  
 - 🔧 Tukar ganti atap  
 - 🏘️ Rehab atap  
-- 🚪 Pembuatan teralis pagar, jendela, pintu pagar, cerobong  
+- 🚪 Pembuatan teralis pagar, jendela, pintu pagar,rehab pagar cerobong  
 - ⚙️ Pembuatan conveyor  
+pengadaan ac 
 
 ---
 
-## 📸 Portofolio Video
+## 📸 Portofolio Video pekerjaan
 🎥 Lihat hasil pekerjaan dan video keren lainnya di:  
 
 [![TikTok](https://img.shields.io/badge/TikTok-%40baja__ringan__official-000000?style=for-the-badge&logo=tiktok)](https://www.tiktok.com/@baja_ringan_official)  
