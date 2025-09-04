@@ -23,7 +23,7 @@
 - 🏚️ Bongkar pasang atap  
 - 🔧 Tukar ganti atap  
 - 🏘️ Rehab atap  
-- 🚪 Pembuatan teralis pagar, jendela, pintu pagar,rehab pagar cerobong  
+- 🚪 Pembuatan teralis pagar, jendela, pintu pagar,rehab pagar  
 - ⚙️ Pembuatan conveyor  
 pengadaan ac 
 jasa pembuatan bangun pabrikasi mesin poles biji pinang
