@@ -1,6 +1,5 @@
-<p align="center">
-  <img src="./poster-baja-ringan.jpg" alt="Poster Jasa Instalasi Atap Rumah Jambi" width="100%" />
-</p>
+![Poster Jasa Instalasi Atap Rumah Jambi](poster-baja-ringan.jpg)
+
 
 # 🏗️ Baja_Ringan_Official
 **Mengerjakan pekerjaan bangunan Kota Jambi dan sekitarnya** 
