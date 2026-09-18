@@ -77,6 +77,8 @@ lihat portofolio kami di:
 
 https://play.google.com/store/apps/details?id=com.novarizal.novapromasjid
 
+dan portofolio hasil pekerjaan kami di media sosial kami.
+
 [![TikTok](https://img.shields.io/badge/TikTok-%40baja__ringan__official-000000?style=for-the-badge&logo=tiktok)](https://www.tiktok.com/@baja_ringan_official)  
 [![SnackVideo](https://img.shields.io/badge/SnackVideo-Nov_R_Official-FFD200?style=for-the-badge&logo=snackvideo&logoColor=000)](https://s.snackvideo.com/u/@nov_r_official/tOdwUs4Z)  
 
