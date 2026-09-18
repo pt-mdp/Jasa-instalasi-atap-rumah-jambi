@@ -72,7 +72,10 @@ pembuatan pagar mobil pick up
 📸 Work Video Portfolio
 
 🎥 See our projects and other awesome videos at:
+selain jasa konstruksi kami juga melayani jasa pembuatan aplikasi baik untuk keperluan pribadi atau yang lainya.
+lihat portofolio kami di:
 
+https://play.google.com/store/apps/details?id=com.novarizal.novapromasjid
 
 [![TikTok](https://img.shields.io/badge/TikTok-%40baja__ringan__official-000000?style=for-the-badge&logo=tiktok)](https://www.tiktok.com/@baja_ringan_official)  
 [![SnackVideo](https://img.shields.io/badge/SnackVideo-Nov_R_Official-FFD200?style=for-the-badge&logo=snackvideo&logoColor=000)](https://s.snackvideo.com/u/@nov_r_official/tOdwUs4Z)  
