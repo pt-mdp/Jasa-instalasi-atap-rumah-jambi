@@ -71,6 +71,12 @@ pembuatan pagar mobil pick up
 📸 Work Video Portfolio
 
 🎥 See our projects and other awesome videos at:
+
+kami juga menyediakan informasi gudang yang mau di jual di kota jambi lihat portofolio kami di media sosial:
+
+Video ini mengesankan, ayo  lihat aja! 
+https://s.snackvideo.com/p/6VCd6zxl
+
 selain jasa konstruksi kami juga melayani jasa pembuatan aplikasi baik untuk keperluan pribadi atau yang lainya.
 lihat portofolio kami di:
 
