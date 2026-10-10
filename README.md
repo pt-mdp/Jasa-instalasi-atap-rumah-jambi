@@ -1,4 +1,5 @@
-![Poster Jasa Instalasi Atap Rumah Jambi](poster-baja-ringan.jpg)
+![Poster Jasa Instalasi Atap Rumah Jambi](nama_file_poster.png)
+
 
 
 # 🏗️ Baja_Ringan_Official
