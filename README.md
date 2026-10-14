@@ -72,6 +72,10 @@ pembuatan pagar mobil pick up
 📸 Work Video Portfolio
 
 🎥 See our projects and other awesome videos at:
+menyediakan informasi rumah di jual di kota jambi lihat portofolio di media sosial
+
+Video ini mengesankan, ayo  lihat aja! 
+https://s.snackvideo.com/p/xBVkdZzA
 
 kami juga menyediakan informasi gudang yang mau di jual di kota jambi lihat portofolio kami di media sosial:
 
